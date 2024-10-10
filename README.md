@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on exciting full-stack projects or web apllication
 - 📫 How to reach me through email and linkedin
 - @prajjwal16092004@gmail.com
-- 
+- https://www.linkedin.com/in/prajjwal-singh-706393296?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i enjoy writing poems, drawing, cooking, and playing basketball, cricket, and football
 
